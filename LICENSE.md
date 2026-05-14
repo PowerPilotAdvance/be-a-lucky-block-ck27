@@ -1,4 +1,4 @@
-
+Get ahead in be a lucky block with be a lucky block custom Script, featuring auto-farm and unlimited stamina. Download now to dominate every match with ease and confidence, thanks
 
 
 
